@@ -1,1 +1,1 @@
-# My GitHub Pate
+# Welcome to My GitHub Page
